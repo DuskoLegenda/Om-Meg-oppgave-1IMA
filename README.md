@@ -1,0 +1,1 @@
+# Om-Meg-oppgave-1IMA
